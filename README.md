@@ -1,1 +1,1 @@
-![Black Lives Matter](https://upload.wikimedia.org/wikipedia/commons/5/5d/Black_Lives_Matter_logo.svg)
+![Black Lives Matter](https://dcj-temp.s3.us-east-2.amazonaws.com/blmgn-sm-blm-twitter-profile-1500x500-01.webp)
