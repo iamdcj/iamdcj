@@ -1,1 +1,1 @@
-![Black Lives Matter](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5d/Black_Lives_Matter_logo.svg/1200px-Black_Lives_Matter_logo.svg.png)
+![Black Lives Matter](https://blacklivesmatter.com/wp-content/uploads/2020/06/blmgn-sm-blm-facebook-frame-1418x1418-03.png)
